@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 📫 Reach out: [Instagram](https://www.instagram.com/jackie_lan7?igsh=MWtkb2xzMGcyd2IyZw==)
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: enjoy exploring CSS
-- 🎶 Hobbies: Playing the Clarinet
+- 🎶 Hobbies: Learning guitar
   
